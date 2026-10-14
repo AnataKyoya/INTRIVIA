@@ -1,4 +1,4 @@
-# INTRIVIA 2026
+<img width="1510" height="872" alt="image" src="https://github.com/user-attachments/assets/43d94f73-2cee-49e0-9cda-ca1cb3d6be32" /># INTRIVIA 2026
 
 ## Identitas Diri
 
@@ -14,3 +14,6 @@ Sejauh ini INTRIVIA 2026 membantu saya mengenal lingkungan kampus dan mulai memb
 
 Di Cluster 12 saya mulai mengenal teman-teman baru dan merasa lebih nyaman menjalani kegiatan bersama.
 
+## Harapan Kuliah
+
+Saya berharap bisa belajar dengan konsisten, mendapat relasi yang baik, dan berkembang secara akademik maupun non-akademik selama kuliah.
