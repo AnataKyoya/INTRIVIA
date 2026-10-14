@@ -13,3 +13,7 @@ Sejauh ini INTRIVIA 2026 membantu saya mengenal lingkungan kampus dan mulai memb
 ## Kesan Pesan Cluster 12 Sejauh Ini
 
 Di Cluster 12 saya mulai mengenal teman-teman baru dan merasa lebih nyaman menjalani kegiatan bersama.
+
+## Harapan Kuliah
+
+Saya berharap bisa belajar dengan konsisten, mendapat relasi yang baik, dan berkembang secara akademik maupun non-akademik selama kuliah.
